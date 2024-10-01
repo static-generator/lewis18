@@ -1,4 +1,4 @@
-# Hi! my name is Jadynn D. Dinero
+# Hi! my name is Jadynn D. Louvre Dinero from 9 Lewis
 ## My favorite Rom-com movies!!
 ![image](https://github.com/user-attachments/assets/cb164f37-db66-433d-bc45-c9736c2d15b8)
 ![image](https://github.com/user-attachments/assets/7e532570-32f0-46cf-89ea-f83647b12230)
